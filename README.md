@@ -1,0 +1,1 @@
+# PCA-Validaci-n-Temporal-y-Modelos-Predictivos-para-el-Desempe-o-Exportador-de-Piura
